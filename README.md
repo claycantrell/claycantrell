@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @claycantrell
+- I'm an undergratuate at USC looking for a job!
+- any job!
+- hire me!
+- cacantre@usc.edu
